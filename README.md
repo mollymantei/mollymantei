@@ -1,7 +1,7 @@
 ### Hi there 👋
 - 📫 How to reach me: mollymantei@outlook.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a runner and a cat mom!!!
+- ⚡ Fun fact: I'm a runner and a cat mom!
 
 ![cat bongoing the bed](https://media.giphy.com/media/vVegyymxA90fkY8jkE/giphy.gif)
 
