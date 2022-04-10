@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 📫 How to reach me:mollymantei@outlook.com
+- 📫 How to reach me: mollymantei@outlook.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm a runner and a cat mom!
 
